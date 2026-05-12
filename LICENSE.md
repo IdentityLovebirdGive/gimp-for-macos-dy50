@@ -1,4 +1,4 @@
-# 
+# Gimp for macOS premium Preset: typography tools & version history is the best Gimp for macOS preset, featuring typography tools and version history. Safe, efficient, and optimized
 
 
 
